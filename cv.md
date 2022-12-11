@@ -1,5 +1,5 @@
 1. Kairatov Kanat
-2. Phone/WhatsApp: +7 708 123 16 18
+2. Phone/WhatsApp: +7 (708) 123 16 18
    Email: kairatovkanatk@gmail.com
 4. Diligent, responsible and artistic individual with an engineering background looking forward to a creative and challenging full-time job that will develop him both professionally and personally.
 5. I know C++, Pascal, Html in basic level/
